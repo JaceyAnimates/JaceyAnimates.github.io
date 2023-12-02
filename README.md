@@ -1,4 +1,5 @@
-PROGRAMS I USE FOR MY DEVELOPMENT FOR SONIC STUFF SUCH AS DESIGNING LEVEL'S
-ESRAEL_SONIC_EDITOR_2
-https://info.sonicretro.org/Esrael_Sonic_Editor_II
-MUST HAVE A SONIC ROM TO EDIT LEVEL'S ETC
+Hello I am Jacey i am very kind if you get to know me.
+I have austism/adhd but i usually try to hide it.
+  I love Friday Night Funkin.
+  And Here's my discord for faster responses 
+  DISCORD jacey_animates
